@@ -8,4 +8,6 @@ Jeta juaj e dashurisë do të jetë në zjarr dhe aftësia juaj <a href="https:/
 <h2>Cfare eshte horoskopi</h2>
 
 Nëse jeni një sipërmarrës duke filluar biznesin tuaj të ëndrrave ose keni qenë vazhdimisht të suksesshëm, mbajtja e kristaleve Të gjithë, pa marrë mrekullueshëm dhe emocionues.  Së pari, 
-Pra, çfarë duhet të bësh këto tre javët e ardhshme? Krokodili Së pari, mos u frikësoni. Me pak largpamësi (dhe disa artikuj nga paketa e mbijetesës retrograde Mercury!), Ju mund të shmangni disa hapa të gabuar të mëdhenj, dhe në të vërtetë të lulëzoni gjatë këtij sezoni. Këtu, ne rendisim se çfarë të bëjmë - dhe çfarë nuk duhet të bëjmë - gjatë reaksionit të Merkurit, kështu një përmbledhje e të gjitha ngjarjeve ast
+Pra, çfarë duhet të bësh këto tre javët e ardhshme? Krokodili Së pari, mos u frikësoni. 
+Source: <a href="https://krokodili.al">https://krokodili.al</a> 
+Me pak largpamësi (dhe disa artikuj nga paketa e mbijetesës retrograde Mercury!), Ju mund të shmangni disa hapa të gabuar të mëdhenj, dhe në të vërtetë të lulëzoni gjatë këtij sezoni. Këtu, ne rendisim se çfarë të bëjmë - dhe çfarë nuk duhet të bëjmë - gjatë reaksionit të Merkurit, kështu një përmbledhje e të gjitha ngjarjeve ast
